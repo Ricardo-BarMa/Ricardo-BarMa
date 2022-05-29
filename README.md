@@ -21,7 +21,7 @@ I’m looking to collaborate on sustainable projects.
 
 Feel free to contact me via email or LinkedIn.
 
-[<img src="174857.png" width = "50" >](https://www.linkedin.com/in/ricardodavidbarraganmartinez/) [<img src="732200.png" width = "50" >](mailto:barragan.martinez.ricardo@gmail.com)
+[<img src="174857.png" width = "50" >](https://www.linkedin.com/in/ricardodavidbarraganmartinez/)
 
 <img src="R-2.gif" width = "700">
 
