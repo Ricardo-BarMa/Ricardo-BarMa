@@ -19,7 +19,7 @@ I’m looking to collaborate on sustainable projects.
 
 **How to reach me?** 
 
-Feel free to contact me via email or LinkedIn.
+Feel free to contact me via LinkedIn.
 
 [<img src="174857.png" width = "50" >](https://www.linkedin.com/in/ricardodavidbarraganmartinez/)
 
